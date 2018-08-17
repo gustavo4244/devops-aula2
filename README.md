@@ -1,2 +1,6 @@
-# devops-aula2
-Atividade Contínua 1
+# Megan Fox 
+# Scarlett Johansson
+# Angelina Jolie
+# Emeraude Toubia
+
+
